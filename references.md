@@ -1,3 +1,2 @@
-# References
+scottie barnes
 
-* octocat 1 😈
